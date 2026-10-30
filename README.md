@@ -1,0 +1,1 @@
+# kennedywarner-type-image-layout
